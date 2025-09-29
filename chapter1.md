@@ -1,4 +1,4 @@
-# Chapter 1
+# Liam and Lauvey
 
 Liam was a computer science student with a passion for technology and a love for games. Every day, he would sit at his desk, surrounded by stacks of books, a laptop glowing softly in the dim light of his room. With his headphones on, he would listen to Lauvey’s soothing music, which filled him with inspiration as he worked on his projects.
 

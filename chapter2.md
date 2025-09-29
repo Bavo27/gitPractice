@@ -1,4 +1,4 @@
-# Chapter 2
+# Into the Arena
 
 One day, while playing Clash Royale, Liam noticed something strange. He won a match easily, but immediately after, his screen flickered. A pop-up appeared showing a mysterious message: "Level up your skills in real life. Join us." Curious, Liam clicked it, and the screen morphed into a dazzling light. The colors swirled, and suddenly he was not in his room anymore.
 

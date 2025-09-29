@@ -1,4 +1,4 @@
-# Chapter 4
+# HE HE HE HA
 
 "Charge!" he shouted, rallying the players. They launched an attack together, battling against the tower. Liam felt alive, dodging attacks and coordinating moves. Just then, an enormous dragon erupted from the tower, roaring fiercely. Liam’s heart raced, but the matcha brewed strength within him was undeniable.
 

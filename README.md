@@ -1,7 +1,6 @@
 # Liam the Matcha Mega-Knight
 
- - [Chapter 1](chapter1.md)
- - [Chapter 2](chapter2.md)
- - [Chapter 3](chapter3.md)
- - [Chapter 4](chapter4.md)
- 
+ - [Liam and Lauvey](chapter1.md)
+ - [Into the Arena](chapter2.md)
+ - [Spotting the Enemy](chapter3.md)
+ - [HE HE HE HA](chapter4.md)
