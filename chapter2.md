@@ -1,5 +1,3 @@
 # Chapter 2!
 
-One day, while playing Clash Royale, Liam noticed something strange. He won a match easily, but immediately after, his screen flickered. A pop-up appeared showing a mysterious message: "Level up your skills in real life. Join us." Curious, Liam clicked it, and the screen morphed into a dazzling light. The colors swirled, and suddenly he was not in his room anymore.
-
-Liam found himself inside the game, he could feel the energy around him. The characters he had played with before were now real. They moved and spoke, waiting for him to take action. Liam was both excited and scared. He had always dreamed of being part of his favorite game, but this was more than he had ever wished for.
+As he explored this new world, a giant enemy tower loomed ahead. There were other players nearby, each wearing armor and ready to fight. Chenhao realized they needed a leader. His computer science skills suddenly kicked in. He started to strategize, recalling the best techniques he had learned from playing Clash Royale. His mind raced with ideas, much like coding lines of a program.
